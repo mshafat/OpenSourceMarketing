@@ -93,3 +93,7 @@ So the posts are there to model and follow, but don't stop yourself from comment
 Thanks for reading the doc so far. 
 
 ~ Shafat M. (AllThruSmartphone)
+
+
+
+Copyright (c) 2024 AllThruSmartphone.xyz
