@@ -96,8 +96,9 @@ Thanks for reading the doc so far.
 
 
 > [!Summary] Offer
-> The Ultimate Online Business Building course is currently having a promo where you can buy it at 30% discount:
-> [Click Here to Know More](https://rebrand.ly/roadmapexclusive)
+> Unlock your potential with **The Ultimate Online Business Building Course**, now available at a special **30% discount**! This course has been a leader in the Digital Marketing industry, helping many entrepreneurs and professionals succeed online.
+> 
+> [>>> Click Here to Grab the Offer <<<](https://rebrand.ly/roadmapexclusive)
 
 
 Copyright (c) 2024 AllThruSmartphone.xyz
