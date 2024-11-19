@@ -102,7 +102,7 @@ Thanks for reading the doc so far.
 > 
 > But here's the thing: most affiliate marketing courses are overpriced and underdeliver. But this 3-Day Intensive Workshop is a polar opposite. It is designed by industry veterans to give you practical, affordable training that gets results. At an unbelievable price:
 > 
-> [>>> Click Here to Grab the Offer <<<](https://rebrand.ly/roadmapexclusive)
+> [>>> Click Here to Grab the Offer <<<](https://rebrand.ly/3-Day-Affiliate-Workshop)
 
 
 Copyright (c) 2024 AllThruSmartphone.xyz
