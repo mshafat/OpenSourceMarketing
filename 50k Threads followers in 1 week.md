@@ -96,7 +96,7 @@ Thanks for reading the doc so far.
 
 
 > [!Summary] Offer
-> Best Online Business to Start!
+> Best Online Business to Start?
 > It is affiliate marketing. Skip the expensive courses and join my 3-Day Intensive Workshop for practical, affordable training that gets results!
 > 
 > [>>> Click Here to Grab the Offer <<<](https://rebrand.ly/roadmapexclusive)
