@@ -87,7 +87,7 @@ Social proof builds credibility and trust. Use testimonials, case studies, and s
 
 Different formats resonate with different audiences. Experiment with various types of content:
 
-- **Blog Posts**: In-depth articles that provide value.
+- **Long Form Posts**: In-depth articles that provide value.
 - **Videos**: Engaging visual content that demonstrates concepts.
 - **Webinars**: Live sessions that allow interaction and real-time Q&A.
 
