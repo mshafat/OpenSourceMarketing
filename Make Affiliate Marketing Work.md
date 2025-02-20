@@ -61,4 +61,22 @@ They can't focus...
 Therefore they need a system that keeps them focus...
 Ultimately skills pay the bills
 And the 2 skills that I mentioned are invaluable for affiliate marketers of all sorts...
+So to make affiliate marketing work you need the following:
+1. A proven product that's already selling
+2. Knowing who can be benefited from the product -- customer avatar
+3. Creating a lead magnet to solve an immediate pain and giving it free
+4. Gaining content creation and copywriting skills
+5. Going into the trenches and putting in the work
+
+I know it is overwhelming already... and you are thinking how can I learn all these?
+The good thing is you don't need to learn 100% of each of these...
+It is important to get 20% of the knowledge from 1-4 and only focusing on 5.
+
+For that you need a 6th step which is a Execution System that will be simple to implement and also move you forward. 
+
+I think anyone can make affiliate marketing work.
+
+I will live by these and will report my results with you
+
+
 
