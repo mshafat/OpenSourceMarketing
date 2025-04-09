@@ -6,7 +6,7 @@
 - Bulletproof
 - Mastery
 
-## 5 Discipine
+## 5 Discipline of 12 Week Year
 
 1. Vision
 2. Planning (weekly plan)
